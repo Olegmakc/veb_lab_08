@@ -1,1 +1,1 @@
-# veb_lab_08
+http://mywoocomerse.zzz.com.ua/wordpress/
